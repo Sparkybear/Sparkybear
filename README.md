@@ -1,5 +1,8 @@
 - 👋 Hi, I’m @Sparkybear
 - 👀 I’m a terrible website creator lol
+- bruh python is so easy to learn
+- no i wont do no jobs for you
+- 
 
 
 <!---
