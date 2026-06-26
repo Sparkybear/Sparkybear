@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sparkybear
-- 👀 I’m a terrible website creator lol
+- 👀 I’m a terrible website creator
 
 - 
 
